@@ -1,1 +1,1 @@
-my other read updated
+my other reads are updated
